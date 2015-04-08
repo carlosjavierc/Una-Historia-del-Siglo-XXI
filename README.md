@@ -1,2 +1,4 @@
 # Una-Historia-del-Siglo-XXI
 Realizaremos una historia para que se pueda leer el Dia del Libro.
+Introducción: Era el 21 de abril de 2015. Todos los libros del Colegio Antonio Machado habían desaparecido. El profesorado tenía un grave problema no tenían que leer el día del libro. Nuestra clase tuvo una idea, realizar un libro digital para que todo el mundo lo pudiese leer cuando quisiera. Para eso iban a ir escribiendo cada uno un párrafo de ese nuevo libro. El profesor empieza este libro digital y luego van a ir añadiendo sus propias ideas.
+Ha habido un robo en el colegio Antonio Machado. Han desaparecido todos los libros de lectura y no pueden realizar el día del libro. La clase de 6ºB tiene que encontrar donde están los libros. Todos creen que han sido un colegio de su misma localidad. El profesor decide hacer las parejas de investigación y tendrán que ir a los colegios que designe. Esta será la historia de lo que van a encontrar en los colegios...
